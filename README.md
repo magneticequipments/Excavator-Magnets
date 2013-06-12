@@ -1,0 +1,4 @@
+Excavator-Magnets
+=================
+
+The mounting fixture for an electromagnet is also permits the crane operator to apply a compressive force to the electromagnet to compress the material to be picked up by the magnet.  Excavator magnet Manufacturers operator to operate the Excavator Electro Lifting Magnet more efficiently by picking up more material, and to load a truck or container with higher density material, Furthermore, the ability of the excavator operator to incline or tilt the electromagnet in accordance with the higher magnet to reach material from hard-to-reach corners or angles, thereby making the electromagnet much more effective.  easy cost effective way of material handling in open scrap yards byExcavator magnet Manufacturers.  power source: generators/ alternators (fixed in Excavator).
